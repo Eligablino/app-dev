@@ -15,4 +15,3 @@
 [That Time I Got Reincarnated As A Slime](https://www.miruro.cx/)
 
 ==Note that the free websites that I provided is a free website and may contain advertisements.==
-
